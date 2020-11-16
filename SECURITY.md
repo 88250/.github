@@ -4,6 +4,6 @@
 
 * 直接开 Issue（请隐去站点、实际项目等敏感信息）
 * 发邮件至 os@b3log.org
-* 在黑客派上[私信](https://ld246.com/chats/88250)
+* 在链滴上[私信我](https://ld246.com/chats/88250)
 
 非常感谢！
